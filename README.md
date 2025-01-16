@@ -1,1 +1,1 @@
-# Parnter-Submarine-cable
+# Partner-Submarine-cable
